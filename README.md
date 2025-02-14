@@ -3,6 +3,7 @@
 - 🌱 I am currently a systems engineering student 
 - 📫 How to contact me gmail: danitzavaleriaramoshinojosa@gmail.com
 - ⚡Fun fact: I like to train football, also bake and expand my knowledge by reading everything related to my career.
+- my instagram:https://www.instagram.com/v_ale.r.ia?igsh=NXAwNjE4cHU2YzF5
 
 <!---
 Valeria-Ramos4/Valeria-Ramos4 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
